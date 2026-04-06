@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **bramareshkatkam81@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eEKZyydTr9bnDgaXb1_7SJlqS99nEDn7/view?usp=sharing](https://drive.google.com/file/d/1eEKZyydTr9bnDgaXb1_7SJlqS99nEDn7/view?usp=sharing)
+- 📄 My Resume - [https://drive.google.com/file/d/1eEKZyydTr9bnDgaXb1_7SJlqS99nEDn7/view?usp=sharing](https://drive.google.com/file/d/1eEKZyydTr9bnDgaXb1_7SJlqS99nEDn7/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
